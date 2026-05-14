@@ -53,7 +53,7 @@ saiba mais
 
 ### 🕒 Tempo de atividade prática
 
-> 01h e 45 minutos
+> 01h 
 
 ---
 
